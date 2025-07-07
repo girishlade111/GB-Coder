@@ -1,1 +1,0 @@
-# girish-portfolio.github.io
